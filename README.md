@@ -1,3 +1,3 @@
 # Projektmunka
 
-Joreggelt szomszedaiM
+Joreggelt szomszedaim
